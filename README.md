@@ -1,6 +1,6 @@
 milehigh.world
 1. Music Education and Learning:
-Milehigh.world offers a variety of resources to help musicians enhance their skills and knowledge. This includes tutorials, online courses, and workshops on various aspects of music production, songwriting, music theory, and instrument mastery. These resources aim to provide musicians with the tools and techniques to improve their craft and pursue their musical aspirations.
+milehigh.world offers a variety of resources to help musicians enhance their skills and knowledge. This includes tutorials, online courses, and workshops on various aspects of music production, songwriting, music theory, and instrument mastery. These resources aim to provide musicians with the tools and techniques to improve their craft and pursue their musical aspirations.
 2.Networking and Collaboration:
 Milehigh.world provides a platform for musicians to connect and collaborate with each other. Through the platform, musicians can find potential collaborators, such as vocalists, producers, instrumentalists, and songwriters. This collaborative environment encourages creativity, allows musicians to explore new genres and styles, and provides opportunities to learn from others.
 4. Community Forums and Discussions:
